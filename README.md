@@ -1,2 +1,2 @@
 # invie-github
-Your best guitars invie-sibles
+Your best guitars invie-sibles by @editor
